@@ -1,2 +1,4 @@
-![Picsart_25-01-01_22-54-43-732](https://github.com/user-attachments/assets/ba4581ec-92ab-446d-9e83-10f77cd18ed3)
-mrow.
+"God, no, no, God can take my mind"
+
+![Untitled75_20250102150443](https://github.com/user-attachments/assets/59b5dd7f-be11-4b1a-ae07-13f2e76ab16b)
+" I can take my mind, and I'm fine.."
